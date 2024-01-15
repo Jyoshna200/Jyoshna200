@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+NAME: JYOSHNA YARRAGUNTLA
+ST ID: 700758848
+NEURAL ASSIGNMENT 1
+
